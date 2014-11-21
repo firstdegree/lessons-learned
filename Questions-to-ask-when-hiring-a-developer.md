@@ -1,2 +1,2 @@
-Questions to ask when hiring a developer:
+Questions To Ask When Hiring A Developer:
 
